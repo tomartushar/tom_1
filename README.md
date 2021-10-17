@@ -1,4 +1,4 @@
 # tom_1
 
-hi i am tushar tomar
+this is me
 ram is good boy
